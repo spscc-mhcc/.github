@@ -21,7 +21,7 @@ In this organization, you'll find a collection of:
 Interested in joining the MHCC or attending our events? 
 
 - Check [SPSCC Student Life](https://spscc.edu/campus-life/activities) for more details.
-- Drop by our club meetings at SPSCC – all are welcome! You can find us in Technical Education building.
+- Drop by our club meetings at SPSCC – all are welcome! You can find us in the Technical Education building.
 
 ## Contribute
 
